@@ -1,1 +1,7 @@
-# pls0-E6
+# pls0-E6  
+ALETRA EIRINI  
+AM123531  
+PLS50  
+TMIMA A  
+2016-2017  
+
